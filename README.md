@@ -1,13 +1,9 @@
-# JavaWebCalculator
-
-hello 
-good morning
-hiii
-67yt0i9jfnmk
-gvdhbskjznkm,l.
-gcdvhbxjnklmz;l,
-bgnvkmclx,.
-xrdcfgh bjnm
-xcfgvbhjkml,
-cvgbhjnklm;,./
-6 78 89 
+hi
+hello
+hii
+hello
+hi hello
+hi 
+pfnkcj ckx
+jfkclxz;
+jncklx;z
